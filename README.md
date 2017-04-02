@@ -1,6 +1,6 @@
 # Greg Dyke & Emma Mildred are getting married!
 
-![Greg and Emma in greenery](https://gadyke.github.com/images/bamboo2.jpeg)
+![Greg and Emma in greenery](https://gadyke.github.com/images/bamboo3.jpeg)
 
 ## Welcome to our wedding info page!
 
