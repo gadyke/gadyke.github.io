@@ -1,6 +1,6 @@
 # Greg Dyke & Emma Mildred are getting married!
 
-<div style="text-align:center"><img src ="https://gadyke.github.io/images/helmet.jpeg" /></div>
+<div style="text-align:center"><img src ="https://gadyke.github.io/images/helmets.jpeg" /></div>
 
 ## Welcome to our wedding info page!
 
