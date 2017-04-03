@@ -10,7 +10,7 @@ layout: default
 **Saturday the 20th of January, 2018**. The ceremony will take place at **1pm**, but guests are welcome from noon.
 
 ## What?
-We've both been to great weddings that have been near and far, big and small, quiet and **loud**.
+We've both been to great weddings that have been near and far, big and small, quiet and <span style="color:red">**loud**</span>.
 
 For our day, we've decided we want a smaller affair. Although we're nowhere near done planning yet - and you'll find information here as it develops - break dancing probably won't feature.
 
