@@ -16,6 +16,8 @@ We're holding both the ceremony and the reception at the **Five Arrows Hotel (HP
 - **Oswestry**: ~2hr 30mins (via the M40)
 - **Builth Wells**: ~3hrs (also via the M40)
 - **Bristol**: ~2hrs (via the M4)
+- **Murcia, Spain**: ~4hrs (via a plane)
+- **Austin, Texas**: Really?
 
 ## When?
 Saturday the 20th of January, 2018. The hotel is ours from 11am on the 20th - we'll add more information about the day as we have it!
