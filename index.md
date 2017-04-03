@@ -9,6 +9,11 @@ layout: default
 ## When?
 **Saturday the 20th of January, 2018**. The ceremony will take place at **1pm**, but guests are welcome from noon.
 
+## What?
+We've both been to great weddings that have been near and far, big and small, quiet and **loud**.
+
+For our day, we've decided we want a smaller affair. Although we're nowhere near done planning yet - and you'll find information here as it develops - break dancing probably won't feature.
+
 ## Where?
 We're holding both the ceremony and the reception at the **Five Arrows Hotel (HP18 0JE)**, on the edge of the Waddesdon Manor estate near Aylesbury, Buckinghamshire.
 
@@ -30,3 +35,6 @@ We have the hotel to ourselves and some of the wedding party are staying there, 
 - Etc.
 
 ## How?
+
+### Responding to our invitation
+The sooner you can confirm that you'll be able to join us, the better! If you know or aren't sure you'll be able to attend, please tell us!
