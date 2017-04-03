@@ -1,3 +1,6 @@
+---
+layout: default
+---
 # Greg Dyke & Emma Mildred are getting married!
 
 <div style="text-align:center"><img src ="https://gadyke.github.io/images/helmets.jpeg" width="25%"/></div>
