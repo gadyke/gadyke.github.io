@@ -12,12 +12,12 @@ We're holding both the ceremony and the reception at the **Five Arrows Hotel (HP
 
 ### If you're travelling from:
 
-- **Cheddington, Tring or Ayelsbury**: Hopefully we don't need to help you...
+- **Cheddington, Tring or Aylesbury**: Hopefully we don't need to help you...
 - **Oswestry**: ~2hr 30mins (via the M40)
 - **Builth Wells**: ~3hrs (also via the M40)
 - **Bristol**: ~2hrs (via the M4)
 - **Murcia, Spain**: ~4hrs (via a plane)
-- **Austin, Texas**: Really?
+- **Houston, Texas**: Really?
 
 ## When?
-Saturday the 20th of January, 2018. The hotel is ours from 11am on the 20th - we'll add more information about the day as we have it!
+Saturday the 20th of January, 2018. The ceremony will take place at 1230, but Greg will happily welcome guests arriving from noon.
