@@ -7,7 +7,7 @@ layout: default
 <div style="text-align:center"><img src ="https://gadyke.github.io/images/helmets.jpeg" width="25%"/></div>
 
 ## When?
-Saturday the 20th of January, 2018. The ceremony will take place at 1pm, but guests are welcome from noon.
+**Saturday the 20th of January, 2018**. The ceremony will take place at **1pm**, but guests are welcome from noon.
 
 ## Where?
 We're holding both the ceremony and the reception at the **Five Arrows Hotel (HP18 0JE)**, on the edge of the Waddesdon Manor estate near Aylesbury, Buckinghamshire.
@@ -28,3 +28,5 @@ We have the hotel to ourselves and some of the wedding party are staying there, 
 - Etc.
 - Etc.
 - Etc.
+
+## How?
