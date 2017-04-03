@@ -22,7 +22,7 @@ We're holding both the ceremony and the reception at the **Five Arrows Hotel (HP
 - **Murcia, Spain**: ~4hrs (via a plane)
 - **Houston, Texas**: Really?
 
-We have the hotel to ourselves, but there's also plenty of other [accommodation]({{% link _subpages/accom.md %}}) nearby if you'd like to stay the night and join us for breakfast the next day.
+We have the hotel to ourselves, but there's also plenty of other [accommodation]({{% link /_subpages/accom.md %}}) nearby if you'd like to stay the night and join us for breakfast the next day.
 
 ## When?
 Saturday the 20th of January, 2018. The ceremony will take place at 1230, but Greg will happily welcome guests arriving from noon.
