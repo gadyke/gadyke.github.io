@@ -6,8 +6,8 @@ layout: default
 
 <div style="text-align:center"><img src ="https://gadyke.github.io/images/helmets.jpeg" width="25%"/></div>
 
-## What?
-Hopefully you know who we are and have an invitation to share with us what will be a wonderful day.
+## When?
+Saturday the 20th of January, 2018. The ceremony will take place at 1230, but guests are welcome from noon.
 
 ## Where?
 We're holding both the ceremony and the reception at the **Five Arrows Hotel (HP18 0JE)**, on the edge of the Waddesdon Manor estate near Aylesbury, Buckinghamshire.
@@ -28,6 +28,3 @@ We have the hotel to ourselves and some of the wedding party are staying there, 
 - Etc.
 - Etc.
 - Etc.
-
-## When?
-Saturday the 20th of January, 2018. The ceremony will take place at 1230, but Greg will happily welcome guests arriving from noon.
