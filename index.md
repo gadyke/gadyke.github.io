@@ -28,7 +28,7 @@ We're holding both the ceremony and the reception at the **Five Arrows Hotel (HP
 - **Houston, Texas**: Really?
 
 ### Accommodation
-We have the hotel to ourselves with fifteen double rooms and one single. We're aiming to house the wedding party, those with children and our families (in that order) but we'll fill up eventually! Luckily there's also plenty of accommodation nearby if you'd like to stay the night and join us for breakfast the next day - you'd be very welcome!:
+We have the hotel to ourselves with fifteen double rooms and one single. We're aiming to house the wedding party, those with children and our immediate families (in that order) but we'll fill up eventually! Luckily there's also plenty of accommodation nearby if you'd like to stay the night and join us for breakfast the next day - you'd be very welcome!:
 
 - The Lion, Waddesdon (~5 minute walk) - HP18 0JD
 - Hartwell House, Aylesbury (~10 minute drive) - HP17 8NR
