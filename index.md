@@ -12,7 +12,7 @@ layout: default
 ## What?
 We've both been to great weddings that have been near and far, big and small, quiet and <span style="color:red">**loud**</span>.
 
-For our day, we've decided we want a smaller affair. Although we're nowhere near done planning yet - and you'll find information here as it develops - break dancing probably won't feature.
+For our day, we've decided we want a smaller event. Although we're nowhere near done planning yet - and you'll find information here as it develops - break dancing probably won't feature.
 
 ## Where?
 We're holding both the ceremony and the reception at the **Five Arrows Hotel (HP18 0JE)**, on the edge of the Waddesdon Manor estate near Aylesbury, Buckinghamshire.
