@@ -38,7 +38,4 @@ We have the hotel to ourselves with fifteen double rooms and one single. We're a
 ## How?
 
 ### Responding to our invitation
-In addition to the spiffy Limited Edition invitation you'll receive in the post, we'll be sending out digital invites that will make it easier for us to keep track of all you wonderful miscreants. Although we'd love to hear from you through whatever means, it would be useful if you could respond through that too!
-
-### When to respond
-The sooner you can confirm that you'll be able to join us the better, even though final numbers aren't vital for months yet. If you know or aren't sure you'll be able to attend, please tell us!
+With such a small crowd, we don't want to create a lot of fuss with a complicated RSVP process, just get in contact and let us know!
