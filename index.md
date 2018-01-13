@@ -9,7 +9,7 @@ layout: default
 ## When?
 **Saturday the 20th of January, 2018**. The ceremony will take place at **1pm**, but those guests joining us for that part of the day are welcome from noon.
 
-##Update - Gifts!
+## Update - Gifts!
 Some guests have asked us about our preferences for gifts. Of course, nothing is expected or required but for those who wish to do so we are taking contributions toward a Honeymoon later in the year. You can find our Trailfinders list <a href="https://www.trailfinders.com/#/faf-login">here</a> - surname 'Dyke' and reference number 5BGVJ9.
 
 ## What?
